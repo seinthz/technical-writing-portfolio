@@ -58,5 +58,5 @@ I focus on:
 ---
 
 ## 📩 Contact
-Email: your email  
-LinkedIn: your LinkedIn# technical-writing-portfolio
+Email: salimonabi@gmail.com
+LinkedIn: (https://www.linkedin.com/in/salimon-abiodun-8092aab7)
